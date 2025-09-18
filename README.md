@@ -65,3 +65,5 @@ Despite increased law enforcement pressure and changing regulations, Nexus darkn
 ---
 
 *This article is for informational purposes only. Accessing or participating in illicit activities on darknet markets is illegal and punishable by law.*
+
+Update:  18.09.2025 link is active and operational
